@@ -6,7 +6,7 @@ Two Time <img src="https://i.ibb.co/nNvJXTR9/1254212144485109820.gif" height="15
   
 > ྀིᛝ┊<img src="https://i.ibb.co/605Z6tqF/IMG-4617.webp" width="15px"> My kins
 
-I am a **fictionkin** of Msak__, Zabooboo3, Two Time, 007n7 and Elliot Builder. Doubles always iwec please! I cannot help it, but I may become agitated around you (especially defensive over Two Time). Less important IDs are unlisted!
+- I am a **fictionkin** of Msak__, Zabooboo3, Two Time, 007n7 and Elliot Builder. Doubles always iwec please! I cannot help it, but I may become agitated around you (especially defensive over Two Time). Less important IDs are unlisted!
 
 > ྀིᛝ┊<img src="https://i.ibb.co/605Z6tqF/IMG-4617.webp" width="15px"> C / H whenever 
 
@@ -23,5 +23,5 @@ I am a **fictionkin** of Msak__, Zabooboo3, Two Time, 007n7 and Elliot Builder. 
 
 > ྀིᛝ┊<img src="https://i.ibb.co/605Z6tqF/IMG-4617.webp" width="15px"> Be my friend /nf
 
-I am very happy to form new connections! I won't approach anyone first though, as I have bad anxiety... Doesn't mean I don't want to! Be my guest and be my friend...
+- I am very happy to form new connections! I won't approach anyone first though, as I have bad anxiety... Doesn't mean I don't want to! Be my guest and be my friend...
 </div>
