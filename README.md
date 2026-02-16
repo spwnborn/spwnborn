@@ -4,10 +4,6 @@ Two Time <img src="https://i.ibb.co/nNvJXTR9/1254212144485109820.gif" height="15
 <br/>
 <div align="justify">
   
-> ྀིᛝ┊<img src="https://i.ibb.co/605Z6tqF/IMG-4617.webp" width="15px"> My kins
-
-- I am a **fictionkin** of Msak__, Zabooboo3, Two Time, 007n7 and Elliot Builder. Doubles always iwec please! I cannot help it, but I may become agitated around you (especially defensive over Two Time). Less important IDs are unlisted!
-
 > ྀིᛝ┊<img src="https://i.ibb.co/605Z6tqF/IMG-4617.webp" width="15px"> C / H whenever 
 
 - I don't mind when others cuddle with me / hide behind me / etcetera! Actually I do love that. Just please ask if you can or not whenever I am with someone else.
@@ -16,15 +12,11 @@ Two Time <img src="https://i.ibb.co/nNvJXTR9/1254212144485109820.gif" height="15
 
 - I am usually off-tab / off doing other things and what not, so I will likely miss your messages (unless I am actively paying attention)... Please use whispers.
 
-> ྀིᛝ┊<img src="https://i.ibb.co/605Z6tqF/IMG-4617.webp" width="15px"> Before You Interact 
+> ྀིᛝ┊<img src="https://i.ibb.co/605Z6tqF/IMG-4617.webp" width="15px"> Information
 
 - I am diagnosed with Autism Spectrum Disorder and show symptoms of Borderline, both of which affect the way I interact with others! My processing speed is also slowed down due to constant state of derealization that has been haunting me for over half a decade.
 - My interests include Monster Fucker ARG, A ReGect ARG, Forsaken, Dandy's World, Pressure, Regretevator, Calamity Corp, Bad Things, Termination Protocol, Umamusume, Reverse: 1999. I talk about all of them, so if you take an issue with either I think it's the best for us to avoid one another!
-
-> ྀིᛝ┊<img src="https://i.ibb.co/605Z6tqF/IMG-4617.webp" width="15px"> Additional information
-
-- I am gender and pronoun fluid, both of which change with kinshifts. Forever transmasc though.
-- Along with things already listed, I love art & character development/design, music, anime figurines, various piercings and body mods in general. There's probably more but I can't remember all that twin.
+- Along with things already listed I love art, character development/design, music, anime figurines, various piercings and body mods in general. There's probably more but I can't remember all that twin.
 
 > ྀིᛝ┊<img src="https://i.ibb.co/605Z6tqF/IMG-4617.webp" width="15px"> Be my friend /nf
 
